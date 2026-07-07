@@ -1,6 +1,6 @@
 # Юлия Савичева в Москве — 12 июля 2026
 
-Страница события: https://afisha.org.ru/yuliya-savicheva-moskva-12-07-2026/
+[✅ КУПИТЬ БИЛЕТЫ СО СКИДКОЙ](https://afisha.org.ru/yuliya-savicheva-moskva-12-07-2026/) ✅
 
 ## Промокод на билеты
 
